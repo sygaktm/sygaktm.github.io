@@ -1,2 +1,0 @@
-# sygaktm.github.io
-pidor
